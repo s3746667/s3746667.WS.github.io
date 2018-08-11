@@ -1,4 +1,4 @@
-# My name: is Molly Cunnane
+# Molly Cunnane
 
 I was born in Australia but technically I am only one eighth Australian. I can only fluently speak English however, I’m currently learning Spanish. I graduated from Sunshine Beach State High School in December of 2017. 
 I love to draw and paint as well as reading and writing.
