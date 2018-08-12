@@ -38,3 +38,6 @@ The equipment that would be required for this project would be the IOS developme
  Recorder 5
  Encourager 8
 The results for these tests tell me that I am capable of more than I give myself credit sometimes and that I need to understand and work with weakness in order to progress. According to these results I have very strong team member skills as I am empathetic and good at compromising as well as coming up with ideas. I think it also shows that my behaviour is less leader and more of a supporter. Therefore, when forming a team, I would nominate someone more in the role of the leader to make the decisions and direct the group and would work as ideas/problems solver to help the group along. 
+
+
+template by Github
